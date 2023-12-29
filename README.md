@@ -14,4 +14,4 @@
 <h3 align="left">Connect with me:</h3>
 
 - 📌 
-[LinkedIn](https://linkedin.com/in/kaushal-rathore)
+[LinkedIn](https://www.linkedin.com/in/kaushal-rathore-a9408921b/)
