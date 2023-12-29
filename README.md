@@ -15,6 +15,8 @@
 
 - 📌 
 [LinkedIn](https://www.linkedin.com/in/kaushal-rathore-a9408921b/)
+<br/>
 [Email](kushalrathoreaa@gmail.com)
+<br/>
 [Instagram](https://www.instagram.com/kaushalrathore.09/)
 
